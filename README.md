@@ -1,1 +1,0 @@
-# delta_privacy_policy
